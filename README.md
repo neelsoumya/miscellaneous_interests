@@ -47,12 +47,20 @@ Passage video game by Rohrer
 
 Space invaders retro video game
 
+https://www.retrogames.cz/play_016-DOS.php
+
 Doom video game
 
 Road rash 
 
 Russian book on space
 
+https://chetvergvecher.dreamwidth.org/149046.html
+
 Russian Venus space probes
 
 Children's space books retro (link)
+
+http://dreamsofspace.blogspot.com/2020/05/the-moon-1963.html
+
+http://www.projectrho.com/
